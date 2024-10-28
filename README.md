@@ -4,7 +4,7 @@
 - 💞️ em tudo
 - 📫 nas redes sociais 
 - 😄 ela/dela
-- ⚡ Fun fact: ...
+- ⚡ amo ler
 
 <!---
 Anaaace/Anaaace is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
